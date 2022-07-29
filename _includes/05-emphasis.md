@@ -1,0 +1,3 @@
+- interested in **many** things
+- *Probably* a reasonable person
+- ***Do not lie***

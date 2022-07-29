@@ -1,0 +1,3 @@
+- Being happy
+- Doing good stuff
+- sleeping
